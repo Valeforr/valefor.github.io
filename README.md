@@ -4,9 +4,3 @@ Portofolio of mine
 ![image](https://github.com/user-attachments/assets/41980ef3-2213-4498-bca8-ceb085be8a17)
 ![image](https://github.com/user-attachments/assets/55c8cb2b-2359-4394-9ecc-e86f3c3277cf)
 
-
-Project
-
-https://dimasblogdaspro.blogspot.com/2024/01/project-aplikasi-daspro.html
-
-https://dimasblogdaspro.blogspot.com/2023/12/materi-daspro.html
